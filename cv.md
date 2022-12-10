@@ -19,6 +19,7 @@
 ---
 
 **About Myself**
+
 My career life started with teaching students to learn. My eagerness was amazingly strong...
 I worked in different private schools in Kyrgyzstan though I had two years of teaching experience abroad. In my years of experience in teaching, I understood that it's never too late to learn something new!
 Last year, in August, I decided to learn new skills. I had a strong willingness to learn coding and create new web pages. In September, I purchased a Web Development bootcamp on Udemy, an online learning platform. And my new journey began very quickly.
