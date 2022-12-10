@@ -27,15 +27,25 @@ Last year, in August, I decided to learn new skills. I had a strong willingness 
 My skills:
 
 • Computer skills
+
 • Communication skills
+
 • Leadership skills
+
 • Organizational skills
+
 • Problem-solvig skilss
+
 • Interpersonal skills
+
 • Management skills
+
 • Teamwork skills
+
 • Active listening skills
+
 • Language skills
+
 • Time management skills
 
 ---
